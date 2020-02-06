@@ -1,0 +1,1 @@
+Kind, easy-going, *conscientious*
